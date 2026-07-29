@@ -1,4 +1,5 @@
-
+<img src="https://readme-typing-svg.demolab.com?font=Fira+Code&size=20&pause=1000&color=ff5993&center=true&vCenter=true&width=1200&lines=The+love+pink+in+the+world" />
+   </p>
 
 
 <img width="150" height="20" alt="aad16a8f" src="https://github.com/user-attachments/assets/48a132b7-86ac-4659-9019-b81b9b22c154" /><img width="150" height="20" alt="g53" src="https://github.com/user-attachments/assets/6c5c155a-a69e-409b-b947-e57061e97b9c" /><img width="150" height="20" alt="g104" src="https://github.com/user-attachments/assets/f29c1e02-a6dd-4d95-a82c-86674a97a8c7" /><img width="150" height="20" alt="g105" src="https://github.com/user-attachments/assets/79084989-48a1-40a2-afe7-211bd2b04b71" />
