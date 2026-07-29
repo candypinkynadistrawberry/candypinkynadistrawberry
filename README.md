@@ -11,9 +11,9 @@
 <img width="150" height="20" alt="297939ne9oih0lnm" src="https://github.com/user-attachments/assets/f5a4d499-83d7-4189-b72e-bc522d74e1ae" /><img width="150" height="20" alt="1437937b89pmvwh73" src="https://github.com/user-attachments/assets/be3d3a0f-7b4c-469c-8550-131bd0715cb7" /><img width="150" height="20" alt="370979wjrpdsxaxp" src="https://github.com/user-attachments/assets/749cab07-3296-4080-97c3-f69138fa895a" /><img width="150" height="20" alt="blinkie-blinkies" src="https://github.com/user-attachments/assets/002cc821-fb5b-48fb-be63-b0d5432783e1" /><img width="150" height="20" alt="blinkie-kuromi" src="https://github.com/user-attachments/assets/95f97a1d-416a-4ac7-929a-efd4c9a34ba9" />
 
 - - -
+
   <img src="htps://readme-typing-svg.demolab.com?font=Fira+Code&size=20&pause=1000&color=ff5993&center=true&vCenter=true&width=1200&lines=The+love+is+pink+in+the+world" />
-  <img src="htps://readme-typing-svg.demolab.com?font=Fira+Code&size=20&pause=1000&color=ff5993&center=true&vCenter=true&width=1200&lines=The+love+is+pink+in+the+world" />
-   </p>
+  </p>
 
 - - -
   
