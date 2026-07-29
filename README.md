@@ -1,5 +1,7 @@
 <img src="https://readme-typing-svg.demolab.com?font=Fira+Code&size=20&pause=1000&color=ff5993&center=true&vCenter=true&width=1200&lines=The+love+pink+in+the+world" />
    </p>
+
+ 
 - - -
 
 <table>
@@ -19,6 +21,16 @@
 </table>
 
 [**PRONOUNS.CC!**](https://en.pronouns.page/@N4dicandysilly) 
+
+th>
+</tr>
+</table
+   
+   <img width="1500" height="500" alt="Untitled59_20260730050652" src="https://github.com/user-attachments/assets/04aac71d-5eb4-4543-901e-7c6ce8506ca4" />
+
+/th>
+</tr>
+</table>
 
 <img width="150" height="20" alt="aad16a8f" src="https://github.com/user-attachments/assets/48a132b7-86ac-4659-9019-b81b9b22c154" /><img width="150" height="20" alt="g53" src="https://github.com/user-attachments/assets/6c5c155a-a69e-409b-b947-e57061e97b9c" /><img width="150" height="20" alt="g104" src="https://github.com/user-attachments/assets/f29c1e02-a6dd-4d95-a82c-86674a97a8c7" /><img width="150" height="20" alt="g105" src="https://github.com/user-attachments/assets/79084989-48a1-40a2-afe7-211bd2b04b71" />
 <img width="150" height="20" alt="tumblr_ps0kz4S3201xlx2ufo4_250" src="https://github.com/user-attachments/assets/d8a8d959-c408-4566-8b8c-cd015da65537" /><img width="150" height="20" alt="tumblr_8bd0291926b10acc3f25bbb50e65b7c9_c191eae9_250" src="https://github.com/user-attachments/assets/a9901d64-fc3c-4a6d-a440-6552c7c9460b" /><img width="150" height="20" alt="g115" src="https://github.com/user-attachments/assets/958cea4d-7da5-4795-8f15-80af4d8da568" /><img width="150" height="20" alt="g56" src="https://github.com/user-attachments/assets/b57e6dc1-7854-4612-be42-b9d2f982f05a" /><img width="150" height="20" alt="g85" src="https://github.com/user-attachments/assets/c7b90260-9258-4c0c-a83a-793ef949964a" />
