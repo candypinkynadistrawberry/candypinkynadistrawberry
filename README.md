@@ -16,15 +16,17 @@
       <br>
       $\color{#ff5993}{\textsf{⤥ CHECK OUT MY PAGES BELOW♡ ⤦}}$ <br>
 
-</th>
-</tr>
-</table>
+<table>
+  <tr>
+    <th>
 
 [**PRONOUNS.PAGEএ**](https://en.pronouns.page/@N4dicandysilly) 
+
 - - -
-</th>
-</tr>
-</table
+  
+  <table>
+  <tr>
+    <th>
    
    <img width="1500" height="500" alt="Untitled59_20260730050652" src="https://github.com/user-attachments/assets/04aac71d-5eb4-4543-901e-7c6ce8506ca4" />
 
