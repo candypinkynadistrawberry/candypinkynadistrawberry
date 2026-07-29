@@ -34,6 +34,3 @@
 
 
 [**PRONOUNS.PAGEএ**](https://en.pronouns.page/@N4dicandysilly) 
-
-<img src="htps://readme-typing-svg.demolab.com?font=Fira+Code&size=20&pause=1000&color=ff5993&center=true&vCenter=true&width=1200&lines=The+love+is+pink+in+the+world" />
-  </p>
