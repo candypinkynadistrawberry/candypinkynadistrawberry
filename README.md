@@ -41,33 +41,3 @@
 [**PRONOUNS.PAGEএ**](https://en.pronouns.page/@N4dicandysilly) 
 
 
-
-
-
-#এ𝓝𝓪𝓭𝓲/𝓒𝓪𝓷𝓭𝔂এ
-
-
-
-
-   <table>
-   <tr>
-    <th>
-   
-   <img width="1500" height="500" alt="Untitled59_20260730050652" src="https://github.com/user-attachments/assets/04aac71d-5eb4-4543-901e-7c6ce8506ca4" />
-   
-- - -
-
-<table>
-  <tr>
-    <th>
-      $\color{#303030}{\textsf{ABOUT ME!}}$ <br>
-      <br>
-      $\color{#ff5993}{\textsf{এ 𝓒𝓪𝓷𝓭𝔂 এ}}$ <br>
-      $\color{885883}{\textsf{𝓢𝓱𝓮/𝓗𝓮𝓻}}$ <br>
-      $\color{#ff5993}{\textsf{𝓜𝓮𝓵𝓪𝓷𝓲𝓮 𝓜𝓪𝓻𝓽𝓲𝓷𝓮𝔃 𝓯𝓪𝓷}}$ <br>
-      $\color{#ff5883}{\textsf{Dniunless my twin or friends pls <3}}$ <br>
-      <br>
-      $\color{#ff5993}{\textsf{⤥ CHECK OUT MY PAGES BELOW♡ ⤦}}$ <br>
-
-
-[**PRONOUNS.PAGEএ**](https://en.pronouns.page/@N4dicandysilly) 
