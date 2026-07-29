@@ -20,15 +20,15 @@
 </tr>
 </table>
 
-[**PRONOUNS.CC!**](https://en.pronouns.page/@N4dicandysilly) 
-
-th>
+[**PRONOUNS.PAGEএ**](https://en.pronouns.page/@N4dicandysilly) 
+- - -
+</th>
 </tr>
 </table
    
    <img width="1500" height="500" alt="Untitled59_20260730050652" src="https://github.com/user-attachments/assets/04aac71d-5eb4-4543-901e-7c6ce8506ca4" />
 
-/th>
+</th>
 </tr>
 </table>
 
