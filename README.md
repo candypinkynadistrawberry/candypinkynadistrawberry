@@ -46,7 +46,7 @@
       <br>
       $\color{#885883}{\textsf{PEOPLE WHO KNOW:}}$ <br>
       $\color{#885883}{\textsf{Melaine Martinez, Billie eillish}}$ <br>
-      $\color{#885883}{\textsf{Sarbrina Carpenter, The marias, Taylor swift,Ariana grande,Chappell roan, Olivia rodrigo <br>
+      $\color{#885883}{\textsf{Sarbrina Carpenter, The marias, Taylor swift,Ariana grande,Chappell roan, Olivia rodrigo}}$ <br>
       $\color{#885883}{\textsf{BASIC DNI CRITERIA.}}$ <br>
       $\color{#885883}{\textsf{SHIP/SYSTEM DISCOURSE.}}$ <br>
       $\color{#885883}{\textsf{Dnc my skin pls and TYSM <3}}$ <br>
