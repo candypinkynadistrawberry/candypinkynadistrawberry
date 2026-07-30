@@ -37,3 +37,28 @@
 
 
 [**PRONOUNS.PAGEএ**](https://en.pronouns.page/@N4dicandysilly) 
+- - -
+
+<table>
+  <tr>
+    <th>
+      $\color{#303030}{\textsf{SIMPLE DNI LIST!!}}$ <br>
+      <br>
+      $\color{#885883}{\textsf{PEOPLE WHO KNOW:}}$ <br>
+      $\color{#885883}{\textsf{Melaine Martinez, Billie eillish}}$ <br>
+      $\color{#885883}{\textsf{Sarbrina Carpenter, Tv girl, The marias, Taylor swift,Ariana grande,Chappell roan, Olivia rodrigo,Lana dey rey or all!!.}}$ <br>
+      $\color{#885883}{\textsf{BASIC DNI CRITERIA.}}$ <br>
+      $\color{#885883}{\textsf{SHIP/SYSTEM DISCOURSE.}}$ <br>
+      $\color{#885883}{\textsf{Dnc my skin pls and TYSM <3}}$ <br>
+      <br>
+      $\color{#885883}{\textsf{CHECK OUT MY STRAWPAGE}}$ <br>
+      $\color{#885883}{\textsf{FOR AN EXTENDED LIST AND}}$ <br>
+      $\color{#885883}{\textsf{⤥ MORE INFO ON YOURS TRULY!! ⤦}}$ <br>
+
+</th>
+</tr>
+</table>
+
+[**STRAWPAGE♥︎**](https://httpstrawpagecandystrawberrynadi.straw.page)
+
+#♪♩˚∘𝓒𝓪𝓷𝓭𝔂˚∘♩♪
