@@ -24,7 +24,7 @@
 
    <p align="center">
     
-  <img src="https://readme-typing-svg.demolab.com?font=Fira+Code&size=20&pause=1000&color=59d6ff&center=true&vCenter=true&width=1200&lines=CRYBABY♡" />
+  <img src="https://readme-typing-svg.demolab.com?font=Fira+Code&size=20&pause=1000&color=59d6ff&center=true&vCenter=true&width=1200&lines=にゃ+一、二、三+にゃありがとう" />
    </p>
 - - -
 
