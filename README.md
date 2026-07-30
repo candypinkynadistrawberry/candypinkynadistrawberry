@@ -62,3 +62,7 @@
 [**STRAWPAGE♥︎**](https://httpstrawpagecandystrawberrynadi.straw.page)
 
 #♪♩˚∘𝓒𝓪𝓷𝓭𝔂˚∘♩♪
+<p align="center">
+    
+  <img src="https://readme-typing-svg.demolab.com?font=Fira+Code&size=20&pause=1000&color=fff993&center=true&vCenter=true&width=1200&lines=I+don't+give+a+fuck+about+you+anyways" />
+   </p>
