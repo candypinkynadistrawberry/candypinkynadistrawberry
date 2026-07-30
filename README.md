@@ -20,7 +20,12 @@
     <th>
    
    <img width="1500" height="500" alt="Untitled59_20260730050652" src="https://github.com/user-attachments/assets/04aac71d-5eb4-4543-901e-7c6ce8506ca4" />
-   
+
+
+   <p align="center">
+    
+  <img src="https://readme-typing-svg.demolab.com?font=Fira+Code&size=20&pause=1000&color=59d6ff&center=true&vCenter=true&width=1200&lines=CRYBABY♡" />
+   </p>
 - - -
 
 <table>
@@ -64,5 +69,5 @@
 #♪♩˚∘𝓒𝓪𝓷𝓭𝔂˚∘♩♪
 <p align="center">
     
-  <img src="https://readme-typing-svg.demolab.com?font=Fira+Code&size=20&pause=1000&color=fff993&center=true&vCenter=true&width=1200&lines=I+don't+give+a+fuck+about+you+anyways" />
+  <img src="https://readme-typing-svg.demolab.com?font=Fira+Code&size=20&pause=1000&color=59d6ff&center=true&vCenter=true&width=1200&lines=I+don't+give+a+fuck+about+you+anyways" />
    </p>
