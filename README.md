@@ -15,7 +15,8 @@
   <table>
    <tr>
     <th>
-   <img width="2010" height="2010" alt="Untitled62_20260730224334" src="https://github.com/user-attachments/assets/784b466e-fc12-4179-8dc9-2be0fc43d05a" />
+  <img width="1500" height="500" alt="Untitled59_20260730224619" src="https://github.com/user-attachments/assets/f490e48f-ef13-44fc-bcdc-32c6433a5ec6" />
+
 
    <p align="center">
     
