@@ -64,3 +64,5 @@
     
   <img src="https://readme-typing-svg.demolab.com?font=Fira+Code&size=20&pause=1000&color=59d6ff&center=true&vCenter=true&width=1200&lines=I+don't+give+a+fuck+about+you+anyways" />
    </p>
+<img width="2010" height="2010" alt="Untitled62_20260730224334" src="https://github.com/user-attachments/assets/858b9ea3-bdb1-488e-a07f-80c5e23813ab" />
+  <img src="https://readme-typing-svg.demolab.com?font=Fira+Code&size=20&pause=1000&color=ff5993&center=true&vCenter=true&width=1200&lines=Candy+is+the+kindest+trust!" />
