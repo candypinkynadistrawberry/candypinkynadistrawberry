@@ -38,11 +38,8 @@
 
 
 [**PRONOUNS.PAGEএ**](https://en.pronouns.page/@N4dicandysilly) 
-- - -
 
-<table>
-  <tr>
-    <th>
+- - 
       $\color{#303030}{\textsf{SIMPLE DNI LIST!!}}$ <br>
       <br>
       $\color{#885883}{\textsf{PEOPLE WHO KNOW:}}$ <br>
